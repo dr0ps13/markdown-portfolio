@@ -1,1 +1,7 @@
-Replace this with a list of your favorite things.
+THESE ARE A FEW OF MY FAVORITE THINGS 
+       🎨
+          CREATING 🎨 
+       🧘
+       
+       
+       
