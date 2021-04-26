@@ -1,1 +1,2 @@
-Write out some of your awesome attributes, and use emphasis (like bold or italics) to identify keywords, programming languages, or skills. 
+I am a very skilled freehand artist, and I've recently decided to enhance my skills and then my passion into a career. 
+I've been training with in the creative cloud along with masterclasses and the like.
